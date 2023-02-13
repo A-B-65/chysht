@@ -1,4 +1,4 @@
-- 👋 Hi, I’m C-A-H-Y-O-S-H-T
+- 👋 Hi, I’m D-W-I-C-A-H-Y-O-N-O
 - 👀 I’m interested in woman
 - 🌱 I’m currently learning informatics course
 - 💞️ I’m looking to collaborate on IT field
