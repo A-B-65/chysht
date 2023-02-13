@@ -2,5 +2,4 @@
 - 👀 I’m interested in woman
 - 🌱 I’m currently learning informatics course
 - 💞️ I’m looking to collaborate on IT field
-- Bagaimana cara menghubungi saya? Email cahyokamtis@gmail.com
-saya
+- Bagaimana cara menghubungi saya? Email dwi20210100019@sibermu.ac.id
